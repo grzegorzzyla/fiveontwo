@@ -1,0 +1,1 @@
+Five effects with 2 sprites by SuN 2020 grzegorzsun@gmail.com
